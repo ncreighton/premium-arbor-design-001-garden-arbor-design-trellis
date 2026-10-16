@@ -1,0 +1,2 @@
+# premium-arbor-design-001-garden-arbor-design-trellis
+Tired of sketching arbor designs on scrap paper, losing track of lumber measurements, and forgetting which trellis pattern you loved? The Garden Arbor Design &amp; Trellis Plan Craft Hub turns your scattered ideas into a single, organized blueprint — so you stop planning and start building.  This Notion template eliminates the chaos of arbor design by
